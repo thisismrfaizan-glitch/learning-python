@@ -23,4 +23,8 @@ It’s the foundation of my future as an AI/ML engineer — one commit at a time
 ---
 
 ## 🔗 Let's Connect
-- 📍 [LinkedIn](https://www.linkedin.com/in/) (link to be added soon)
+- 📍 [LinkedIn](www.linkedin.com/in/
+shaikhfaizan18 ) ( www.linkedin.com/in/
+shaikhfaizan18
+Vanity URL name)
+
